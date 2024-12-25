@@ -1,0 +1,1 @@
+Happy Paws Haven provides premium pet care services, including grooming, spa treatments, and high-quality products. We understand that pets are more than companions—they’re family. At Happy Paws Haven, we are committed to ensuring your furry friends are healthy, happy, and well cared for.
